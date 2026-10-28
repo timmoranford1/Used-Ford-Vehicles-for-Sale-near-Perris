@@ -1,7 +1,7 @@
 # Used-Ford-Vehicles-for-Sale-near-Perris
 Find Your Ideal Used Ford Vehicle Near Perris, CA
 
-Finding a [used Ford vehicle near Perris]([url](https://www.timmoranford.com/ford-dealer-perris)) lets you test-drive a variety of vehicles from one of the most reputable manufacturers of family and work vehicles. Depending on your needs, you may be in the market for a Ford SUV, car, or truck. The Perris used Ford dealerships have them all.
+Finding a [used Ford vehicle near Perris]([[url](https://www.timmoranford.com/ford-dealer-perris)](https://www.timmoranford.com/ford-dealer-perris)) lets you test-drive a variety of vehicles from one of the most reputable manufacturers of family and work vehicles. Depending on your needs, you may be in the market for a Ford SUV, car, or truck. The Perris used Ford dealerships have them all.
 
 Pre-Owned Ford Vehicle Models
 
